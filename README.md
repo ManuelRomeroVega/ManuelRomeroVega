@@ -15,4 +15,5 @@ CI/CD DevOps Jenkins GitHub.
 
 📞 I am open to new job opportunities, interesting projects, and collaborations that allow me to continue growing and developing in this exciting field. You can contact me either through my LinkedIn profile or via email:
 
-📩 manuelromerovga02@gmail.com
+                                                                📩 manuelromerovga02@gmail.com
+                                                    https://www.linkedin.com/in/manuel-romero-vega-72b112212/
